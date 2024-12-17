@@ -65,4 +65,4 @@ Si deseas contribuir a este proyecto, por favor:
 
 ## Contacto
 
-Si tienes alguna pregunta o sugerencia sobre este proyecto, no dudes en contactarme a través de german.gilp@um.es o por teléfono o WhatsApp 693060816.
+Si tienes alguna pregunta o sugerencia sobre este proyecto, no dudes en contactarme a través de germangilplanes@gmail.com o por teléfono o WhatsApp 693060816.
